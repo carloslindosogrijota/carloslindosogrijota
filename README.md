@@ -4,7 +4,7 @@
 <br>
 <br>
   
-- 📝 I regularly write articles on [www.linkedin.com/in/carloslindosogrijota](www.linkedin.com/in/carloslindosogrijota)
+- 📝 I write articles on [www.linkedin.com/in/carloslindosogrijota](www.linkedin.com/in/carloslindosogrijota)
 
 - 📫 How to reach me **clgcontact@proton.me**
   
